@@ -22,3 +22,8 @@ To you I promise to always be reassuring.
 
 My love for you protects you and is honorable.
 
+### Never Give In by Greg Thung
+Sometimes in life the road becomes slippery and you tumble and fall.
+But don't lose heart; just get up and forget it all.
+
+When you think you've had enough and can't take anymore,
