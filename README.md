@@ -16,6 +16,9 @@ Would it be ok if I wrote you a rhyme?
 
 Would it be ok if I opened my heart?
 
+### To You I Promise by Danny Blackburn
+My love for you is unconditional and enduring.
+To you I promise to always be reassuring.
 
-
+My love for you protects you and is honorable.
 
