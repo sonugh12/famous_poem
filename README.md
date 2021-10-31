@@ -10,4 +10,12 @@ For you there's nothing I wouldn't do, there's no such task.
 
 I would walk without my shoes to the end of the Earth,
 
+### Would It Be Ok? by Ryan Stiltz
+Would it be ok if I took some of your time?
+Would it be ok if I wrote you a rhyme?
+
+Would it be ok if I opened my heart?
+
+
+
 
